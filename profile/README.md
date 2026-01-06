@@ -1,1 +1,1 @@
-# Game Freak Leak
+# Game Freak Leaks
